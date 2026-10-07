@@ -37,6 +37,8 @@ basic DNI
 
 $\color{#ff0000}{Alnst~fandom(iwec)}$
 
+Lancey supporters (DNI DNI DNI DNI PLSS AUGHGHH I WAS A BANDU FICTKIN STOP IT
+
 #
 
 the sunville project its still on work, i guESs i will make it publicc on dECEMBER I HATE DECMEBER
