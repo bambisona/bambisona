@@ -41,8 +41,8 @@ Lancey supporters (DNI DNI DNI DNI PLSS AUGHGHH I WAS A BANDU FICTKIN STOP IT
 
 #
 
-the sunville project its still on work, i guESs i will make it publicc on dECEMBER I HATE DECMEBER
+the sunvile project is still on wip, the progress will be slow, since for studies and things like that
 
-lalal aAA
+i miss dnb golden apple edition, i feel disappointed after the lancey controversy. i used to support her and their characters (i used to support more bandu), dont talk to me abt lancey without my permission pls ok
 
 rompeteclados en fnf jejejeajJKAJKAJA SE VOLVIO A ROMPER LA TECLA ABAJO oh nvm
